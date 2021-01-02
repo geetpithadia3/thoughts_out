@@ -1,3 +1,3 @@
 # Food for Thoughts
 
-## ******Blog under development******
+## \*\*\*\*\*\*Blog under development\*\*\**\*\*
